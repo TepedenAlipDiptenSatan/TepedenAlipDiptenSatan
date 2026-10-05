@@ -1,1 +1,3 @@
-https://tenor.com/view/chalaca-perumal-paloma-gif-24862668
+<p align="center">
+  <img src="https://media.tenor.com/1F2buTCqdDEAAAAM/chalaca-perumal.gif" width="300" alt="Chalaca Perumal">
+</p>
