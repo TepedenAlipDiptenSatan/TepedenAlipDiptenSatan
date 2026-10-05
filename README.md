@@ -1,1 +1,1 @@
-`https://tenor.com/view/chalaca-perumal-paloma-gif-24862668`
+https://tenor.com/view/chalaca-perumal-paloma-gif-24862668
